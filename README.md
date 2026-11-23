@@ -1,0 +1,1 @@
+# AmidaKuji-iOS
